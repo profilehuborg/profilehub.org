@@ -1,3 +1,3 @@
 profilehub.org
 
-All social media accounts list
+All social media profiles list
