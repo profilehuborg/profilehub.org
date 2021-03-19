@@ -16,3 +16,5 @@ https://brainans.com/
 https://urlebird.com/
 
 https://vidnice.com/
+
+http://vidlan.com/
